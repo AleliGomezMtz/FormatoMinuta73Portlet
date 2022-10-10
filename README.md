@@ -1,0 +1,2 @@
+# FormatoMinuta73Portlet
+ 
